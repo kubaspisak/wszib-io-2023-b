@@ -1,1 +1,2 @@
 Jakub Spisak
+Nikola Rusek
